@@ -8,13 +8,13 @@ Ingredients
  
 * 20 cherry tomatoes ( different coloured ones, ideally )
  
-* 2 kroketten
+* TOMATENSOEP
  
 * 1 tsp ground cumin
  
 * 1 tsp ground coriander
  
---
+---
  
 * ½ tsp sea salt
  
