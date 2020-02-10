@@ -14,7 +14,7 @@ Ingredients
  
 * 1 tsp ground coriander
  
-* juice of fresh lime
+--
  
 * ½ tsp sea salt
  
