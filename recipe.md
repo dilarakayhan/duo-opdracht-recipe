@@ -38,4 +38,3 @@ Put the dry pan back on a high heat and put in a tortilla. Add a generous handfu
 
 Remove from the heat and slice in two. Repeat till you have made enough. Eat while hot! 
 
-Sabotaged the preparations!
