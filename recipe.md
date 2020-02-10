@@ -1,3 +1,30 @@
+Ingredients
+
+* 250 g tin of sweetcorn
+ 
+* 400 g tin of black beans
+ 
+* 1 fresh red chilli
+ 
+* 20 cherry tomatoes ( different coloured ones, ideally )
+ 
+* 1 tsp oil
+ 
+* 1 tsp ground cumin
+ 
+* 1 tsp ground coriander
+ 
+* juice of fresh lime
+ 
+* ½ tsp sea salt
+ 
+* 1 bunch of fresh coriander
+ 
+* 1 ripe avocado
+ 
+* 200 g pack of vegan cheese or 1 x nacho cheese
+ 
+* 4 wholemeal or corn tortillas or wraps
 
 Bereiding
 
